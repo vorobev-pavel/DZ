@@ -1,1 +1,1 @@
-# DZ
+# DZ   vnesenie izmenenyi
